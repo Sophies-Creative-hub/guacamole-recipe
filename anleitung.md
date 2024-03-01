@@ -5,6 +5,5 @@
 3. Füge Salz, Kreuzkümmel und Cayennepfeffer hinzu und verrühre alles gut.
 4. Hacke die Zwiebel, den frischen Koriander und füge sie zusammen mit dem Knoblauchpulver zur Mischung hinzu.
 5. Verrühre alle Zutaten gründlich, bis eine gleichmäßige Guacamole entsteht.
-6. Optional: Füge Tomaten- und Jalapeno-Würfel für zusätzlichen Geschmack hinzu.
 
 Genieße deine selbstgemachte Guacamole!
