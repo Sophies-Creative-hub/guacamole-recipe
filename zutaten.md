@@ -10,3 +10,5 @@
 - 1 Zwiebel
 - 2 Esslöffel frischer Koriander
 - 1 Teelöffel Knoblauchpulver
+- 1 Tomate
+- 1 Jalapeno-Pfeffer
